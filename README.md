@@ -46,6 +46,7 @@
     4.  Сборка конструкции
 *   **Итог:** Органайзер обеспечивает безопасное хранение строительных очков, защищает от повреждений
 
-![photo_2025-11-22_09-54-56](https://github.com/user-attachments/assets/a890dc78-aaf4-4460-8e7f-f9a2b4cfaa45)
+![photo_2025-11-22_09-54-56](https://github.com/user-attachments/assets/97e0429b-8fef-442d-a968-d48ea53e1181)
 
-![photo_2025-11-22_14-53-53](https://github.com/user-attachments/assets/5e703037-0519-4888-9e9f-ec1cada52e9e)
+![photo_2025-11-22_14-53-52 (2)](https://github.com/user-attachments/assets/acf96baf-76ee-411e-8883-083ba04633da)
+
