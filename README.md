@@ -20,6 +20,7 @@
 
 ![photo_1_2025-11-28_19-17-03](https://github.com/user-attachments/assets/d12b7f3c-d249-4ad1-95e2-d53eb816dbdd)
 
+![photo_2025-11-22_14-53-53](https://github.com/user-attachments/assets/6e13a9f6-ff49-4a0d-ae80-8b742c9eb99d)
 
 ### Органайзер 2: Органайзер для клеев разных размеров
  **Назначение:** Упорядочивание и хранение клеев различных размеров
